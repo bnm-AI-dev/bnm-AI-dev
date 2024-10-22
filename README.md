@@ -5,6 +5,6 @@ Welcome to my GitHub! I'm an experienced **Research Associate** working to bring
 
 **Previously at:** [Harvard University](https://seas.harvard.edu/)
 
-*Currently at** Harvard Business School
+*Currently at: ** [Digital Data Design Institute At Harvard](https://d3.harvard.edu/)
 
 
